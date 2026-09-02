@@ -1,6 +1,6 @@
 - 👋 👋 Hi, I'm @Alivexpert
 - 👀 Analytics and Problem Solving
-- 🌱 web and digital insights, enhancing analytics capabilities.
+- 🌱Life will be Multi-platanery
 - 💼 Open to Collaborations
 - ☎  Let's connect and turn Ideas into impactful Platforms together for Innovation businees and customer experiance!
 
